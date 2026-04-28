@@ -1,0 +1,1 @@
+# GEN-Z-SHOP-ALINDA
